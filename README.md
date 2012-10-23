@@ -1,4 +1,4 @@
 Brain-hub
 =========
 
-Thoght Wonders 
+Thought Wonders and Magics
